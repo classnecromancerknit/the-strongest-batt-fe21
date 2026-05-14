@@ -1,4 +1,4 @@
-#  
+#  the strongest battlegrounds custom Script offers the most advanced the strongest battlegrounds Script, with god mode and anti-ban. Perfect for
 
 
 
